@@ -15,7 +15,7 @@
 - **1** small onion, diced
 - **2-3 cloves** garlic, minced
 - **1 tablespoon** olive oil
-- **Salt and pepper** to taste
+- **Salt, pepper and chili** to taste
 - **1 teaspoon** dried oregano or Italian seasoning
 - **Fresh basil** for garnish (optional)
 
